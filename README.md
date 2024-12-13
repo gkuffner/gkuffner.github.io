@@ -1,1 +1,7 @@
-# gkuffner.github.io
+# Mechanical Engineer & Programmer
+
+### Education
+
+### Extracurricular Activities
+
+### Projects
